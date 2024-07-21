@@ -1,4 +1,4 @@
-# Simran5432.-github.i
+# Simran5432.github.io
 # Activity report of student induction program 2024
 
 
