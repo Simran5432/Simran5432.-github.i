@@ -16,4 +16,4 @@
 
 |DAY 7| On the seventh day of our introduction program we firstly intereacted with Er.kanwardeep Kalra in the auditorium. she introduced us with the various factors that matters the most when we are headed to an interview or for placement in a company. Then JASWINDER SINGH helped us to clear some basic science concepts
 
-|DAY 7| On the seventh day of our introduction
+
