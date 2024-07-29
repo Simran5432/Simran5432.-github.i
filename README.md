@@ -4,6 +4,10 @@
 
 |**DAY 1**| On the very first day of induction program. we first visited gurudwara sahib and we get a chance to know a lot of about of the college. we get to know about the contribution of our college in various field of our country.It was a great experience because we get the chance to start the college with this auspicious thing.Then we went to the auditorium  to get to know more things. |
 
+![IMG_20240729_190740_341.jpg](https://github.com/user-attachments/assets/3d44ac96-ee3b-4771-a691-3cb224622b88)
+
+
+
 |**Day 2**| On the second day we visited the auditorium and firstly we listen to the incharge of TAC and Director of STEP GNE **DR.ARVIND DHINGRA**. After that we listen to the **Dean student welfare DR.PARMINDER SINGH** he give his words of wisdom regarding life. Then at the last we interreacted with **CoE DR.HS RAI**. We again had a memorable day at the college.|
 
 |**DAY 3**| On third day of induction program we were headed to classrooms where we intereacted with peers and they shared their experience, valuable knowledge with us. After that we attended the maths class where we did chapters like derivatives and integration.|
