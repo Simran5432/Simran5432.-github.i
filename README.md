@@ -44,6 +44,8 @@
 
 |**Day9**| On the nineth day of induction program. We had our UHV class. We learn about other new human values. After this we had our class of chemistry in which we learned about basics of then after the break students who were eligible for PMS were called out by the college authorities.|
 
+![IMG_20240729_190731_083.jpg](https://github.com/user-attachments/assets/88be12dd-fb5f-4e34-ad68-c08e3f9e4614)
+
 |**Day10**| On the tenth day of induction program. We had Mr.gouravdeep Singh with us. He motivated us with his motivational story. He told us about the IOC initiative which was even awarded by the president of india.In the afternoon we intereacted with Coordinator CML,Er.Lakhveer Singh he told us about a portal SWAYAM from where one can learn a lot of from the professors of IIT. We are able to do a minor degree in any of the course present there.It was very knowledgeable day.Then after this we had a lecture of causmic club.|
 
 |**Day11**| On the eleventh day of induction program.We had our class of chemistry in which we learned about basics of chemistry. After this we had our lecture of UHV. Then after a break we had our test of maths.|
