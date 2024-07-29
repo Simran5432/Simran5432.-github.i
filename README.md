@@ -15,6 +15,9 @@
 
 |**DAY 3**| On third day of induction program we were headed to classrooms where we intereacted with peers and they shared their experience, valuable knowledge with us. After that we attended the maths class where we did chapters like derivatives and integration.|
 
+![IMG_20240729_190735_795.jpg](https://github.com/user-attachments/assets/1d6d5300-14cd-4246-87cb-1c5a33e58c04)
+
+
 |**DAY 4**| On the fourth day of induction program we had some activities related to quantative aptitude and english vocabulary. It was a great interaction with college mates and some really fun activities were there.We get to know about so many topics and some good info. which we were not aware of before. It was really a memorable day. |
 
 |**DAY 5**| On the fifth day of induction program we attended the maths class. We had done some good questions after that we had our UNIVERSAL HUMAN VALUES and We get to know about good values. then we ere given an assignment by the teacher which we are required to submit as soon as possible. Then we had our ENGLISH TEST.
