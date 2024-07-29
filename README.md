@@ -48,6 +48,10 @@
 
 |**Day10**| On the tenth day of induction program. We had Mr.gouravdeep Singh with us. He motivated us with his motivational story. He told us about the IOC initiative which was even awarded by the president of india.In the afternoon we intereacted with Coordinator CML,Er.Lakhveer Singh he told us about a portal SWAYAM from where one can learn a lot of from the professors of IIT. We are able to do a minor degree in any of the course present there.It was very knowledgeable day.Then after this we had a lecture of causmic club.|
 
+
+![IMG_20240729_190751_028.jpg](https://github.com/user-attachments/assets/c565b43a-fad9-4935-89e3-409fc58b3d3f)
+
+
 |**Day11**| On the eleventh day of induction program.We had our class of chemistry in which we learned about basics of chemistry. After this we had our lecture of UHV. Then after a break we had our test of maths.|
 
 |**Day12**| On the twelfth day of induction program.We firstly had our MEDITATION COUNSELLING by the Homeopathic practitioner Dr.kanwalpreet Kaur Bhatt. We were able to dive in the deep sea of meditation state with her guidance. Then we had a program arranged by the cultural committe and it was indeed the best part of our induction program. we enjoyed a lot. There were competition of solo singing and solo dancing. At last i want to say that induction program helped me a lot to learn a lot of things. Induction program helped me to build confidence and helped me to find a way to reach my goal.|
