@@ -54,4 +54,6 @@
 
 |**Day11**| On the eleventh day of induction program.We had our class of chemistry in which we learned about basics of chemistry. After this we had our lecture of UHV. Then after a break we had our test of maths.|
 
+![IMG_20240729_190732_447.jpg](https://github.com/user-attachments/assets/bcdbcf7e-6a23-41f4-a38a-ab5f39062802)
+
 |**Day12**| On the twelfth day of induction program.We firstly had our MEDITATION COUNSELLING by the Homeopathic practitioner Dr.kanwalpreet Kaur Bhatt. We were able to dive in the deep sea of meditation state with her guidance. Then we had a program arranged by the cultural committe and it was indeed the best part of our induction program. we enjoyed a lot. There were competition of solo singing and solo dancing. At last i want to say that induction program helped me a lot to learn a lot of things. Induction program helped me to build confidence and helped me to find a way to reach my goal.|
