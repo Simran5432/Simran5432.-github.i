@@ -20,6 +20,8 @@
 
 |**DAY 4**| On the fourth day of induction program we had some activities related to quantative aptitude and english vocabulary. It was a great interaction with college mates and some really fun activities were there.We get to know about so many topics and some good info. which we were not aware of before. It was really a memorable day. |
 
+![IMG_20240729_190738_927.jpg](https://github.com/user-attachments/assets/e8d40b3c-0863-41d0-934c-3b532b3c314a)
+
 |**DAY 5**| On the fifth day of induction program we attended the maths class. We had done some good questions after that we had our UNIVERSAL HUMAN VALUES and We get to know about good values. then we ere given an assignment by the teacher which we are required to submit as soon as possible. Then we had our ENGLISH TEST.
 
 |**DAY 6**| On the sixth day of our induction program we first attended the UNIVERSAL HUMAN CLASSES in the morning. After that we had peer intereaction they taught us the basic of Excel and taught us to some functions regarding excel. In the afternoon, DR. HARWINDER SINGH motivated us to join NCC(NATIONAL CADET CORPS). Then Er.JASVIR SINGH GREWAL coordinator of NSS motivated us to join NSS. It was a nice day as we saw our campus more deeply.
