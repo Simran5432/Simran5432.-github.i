@@ -10,6 +10,9 @@
 
 |**Day 2**| On the second day we visited the auditorium and firstly we listen to the incharge of TAC and Director of STEP GNE **DR.ARVIND DHINGRA**. After that we listen to the **Dean student welfare DR.PARMINDER SINGH** he give his words of wisdom regarding life. Then at the last we interreacted with **CoE DR.HS RAI**. We again had a memorable day at the college.|
 
+![IMG_20240729_190737_448.jpg](https://github.com/user-attachments/assets/ff3cca56-c175-4579-9bfa-2c30ce0429fb)
+
+
 |**DAY 3**| On third day of induction program we were headed to classrooms where we intereacted with peers and they shared their experience, valuable knowledge with us. After that we attended the maths class where we did chapters like derivatives and integration.|
 
 |**DAY 4**| On the fourth day of induction program we had some activities related to quantative aptitude and english vocabulary. It was a great interaction with college mates and some really fun activities were there.We get to know about so many topics and some good info. which we were not aware of before. It was really a memorable day. |
