@@ -1,6 +1,9 @@
 # Simran5432.github.io
 # Activity report of student induction program 2024
 
+![1489641851phpadqE3r.png](https://github.com/user-attachments/assets/ef794ab4-d99c-4335-9684-a3f55addf4e3)
+
+
 
 |**DAY 1**| On the very first day of induction program. we first visited gurudwara sahib and we get a chance to know a lot of about of the college. we get to know about the contribution of our college in various field of our country.It was a great experience because we get the chance to start the college with this auspicious thing.Then we went to the auditorium  to get to know more things. |
 
