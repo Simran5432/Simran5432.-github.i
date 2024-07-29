@@ -33,7 +33,9 @@
 ![IMG_20240729_190735_795.jpg](https://github.com/user-attachments/assets/b4f10202-999f-4541-a324-bf0d965ae17f)
 
 
-|**DAY 7**| On the seventh day of our introduction program we firstly intereacted with Er.kanwardeep Kalra in the auditorium. she introduced us with the various factors that matters the most when we are headed to an interview or for placement in a company. Then JASWINDER SINGH helped us to clear some basic science concepts
+|**DAY 7**| On the seventh day of our introduction program we firstly intereacted with Er.kanwardeep Kalra in the auditorium. she introduced us with the various factors that matters the most when we are headed to an interview or for placement in a company. Then JASWINDER SINGH helped us to clear some basic science concepts. |
+
+![IMG_20240729_190749_658.jpg](https://github.com/user-attachments/assets/5ad03a64-7ca8-4619-b617-83e6a3badc72)
 
 |**Day8**| On the eighth day of induction program. Today We interacted with the **Dr.S.B singh** and he taught us about life lessons and we get to know about life and dreams we are going to pursue in future. Then we interacted with the Dr. Pushpinder singh and they motivated us to be successful in our lifes.|
 
