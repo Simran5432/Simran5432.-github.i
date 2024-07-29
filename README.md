@@ -39,6 +39,9 @@
 
 |**Day8**| On the eighth day of induction program. Today We interacted with the **Dr.S.B singh** and he taught us about life lessons and we get to know about life and dreams we are going to pursue in future. Then we interacted with the Dr. Pushpinder singh and they motivated us to be successful in our lifes.|
 
+![IMG_20240729_190756_215.jpg](https://github.com/user-attachments/assets/b6d41ad3-ddc4-4fda-ad2e-dcf4021d392b)
+
+
 |**Day9**| On the nineth day of induction program. We had our UHV class. We learn about other new human values. After this we had our class of chemistry in which we learned about basics of then after the break students who were eligible for PMS were called out by the college authorities.|
 
 |**Day10**| On the tenth day of induction program. We had Mr.gouravdeep Singh with us. He motivated us with his motivational story. He told us about the IOC initiative which was even awarded by the president of india.In the afternoon we intereacted with Coordinator CML,Er.Lakhveer Singh he told us about a portal SWAYAM from where one can learn a lot of from the professors of IIT. We are able to do a minor degree in any of the course present there.It was very knowledgeable day.Then after this we had a lecture of causmic club.|
